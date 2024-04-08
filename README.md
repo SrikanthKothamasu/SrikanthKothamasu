@@ -5,7 +5,7 @@
 
 - 📫 How to reach me srikanth.kothamasu@gmail.com
 - 😄 Pronouns: Sri
-- ⚡ Fun fact: Need to Think
+- ⚡ Fun fact: Ready to Run
 
 <!---
 SrikanthKothamasu/SrikanthKothamasu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
